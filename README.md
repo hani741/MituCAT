@@ -1,5 +1,6 @@
-# LightnCAT闪电猫官网地址
+# LightnCAT闪电猫官网地址 + 最新优惠码
 <a href="https://zsfcn.top" target="_blank" rel="noopener">闪电猫官网：点击此处 </a>
+
 
 
 我们了解很多时候大家都需要到国外去学习或交流，我们也不例外，义务提供给大家最好的机场体验。
