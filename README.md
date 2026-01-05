@@ -1,5 +1,5 @@
-# LightnCAT闪电猫官网地址 + 最新优惠码
-<a href="https://zsfcn.top" target="_blank" rel="noopener">闪电猫官网：点击此处 </a>
+# LightnCAT迅捷猫官网地址 + 最新优惠码
+<a href="https://zsfcn.top" target="_blank" rel="noopener">迅捷猫官网：点击此处 </a>
 
 
 
@@ -9,8 +9,8 @@
 
 我们的机场主打稳定，没有华丽花哨的东西。因为我们明白不能上网的痛苦。我们会努力做下去，我们的坚持需要您们的支持。
 
-# LightnCAT闪电猫优惠码
-闪电猫开启1月大促，叠加站内原有活动享受折上折！
+# LightnCAT迅捷猫优惠码
+迅捷猫开启1月大促，叠加站内原有活动享受折上折！
 
 比如年付套餐自带8折，加上12月大促活动8折之后相当于6.4折，力度诱人。
 
