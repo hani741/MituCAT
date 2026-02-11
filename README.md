@@ -41,3 +41,4 @@
 💻Linux：Shell crash（命令行）、Mihomo-Party、clash-verge-rev和FLClash的Linux版本
 
 💻路由器：OpenWRT的OpenClash、passwall
+clash软件下载地址 ：https://clash.zsfcn.top
